@@ -1,6 +1,14 @@
-<h1> snow sucks </h1>
-<p> snow is mean </p>
 ![OG](https://media.olivegarden.com/en_us/images/marketing/olive-garden-restaurants-italian-style-g2-rdv.jpg)
-<p> Even Olive Garden is anti-snow </p>
-<p> snow ruins countless lives </p>
-<h1> We must get rid of snow </h1>
+
+# "Snow is mean" ~ The Olive Garden
+*"we must get rid of snow"*
+# but why
+***snow is ruining our lives***
+# why 
+1. It is cold
+2. it is not tasty
+3. sometimes it is less tasty when it is yellow
+4. it freezes my feet
+5. it does not melt fast enough
+
+## I hate snow
